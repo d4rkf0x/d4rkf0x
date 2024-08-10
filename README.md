@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @d4rkf0x
-- 👀 I’m interested in Law Enforcement That are involved in Human Trafficking
-- 🌱 I’m currently learning Political Science, @ University Of Colorado, Boulder
+- 👀 I’m interested in finding Law Enforcement That are involved in Human Trafficking
+- 🌱 I’m currently learning Paranormal Investigations, @ University Of Colorado, Boulder
 - 💞️ I’m looking to collaborate on Almost Anything That Helps the Human Race find Freedom.
 - 📫 How to reach me. d4rkfox6@x.com
-- 😄 Pronouns: They/them
+- 😄 Pronouns: They/them, 29Å
 - ⚡ Fun fact: I am currently homeless, and looking for a job.
 - 👁️ Looking forward to moving to anywhere besides Denver, Colorado
 
