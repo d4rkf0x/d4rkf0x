@@ -5,7 +5,7 @@
 - 📫 How to reach me. d4rkfox6@x.com
 - 😄 Pronouns: They/them, 29Å
 - ⚡ Fun fact: I am currently homeless, and looking for a job.
-- 👁️ Looking forward to moving to anywhere besides Denver, Colorado
+- 👁️ Looking forward to moving on with my life.
 
 <!---
 API_KEY="8wcxsJNd2GadQjgtA9TvSDhNx"
