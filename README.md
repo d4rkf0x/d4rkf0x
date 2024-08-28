@@ -8,6 +8,8 @@
 - 👁️ Looking forward to moving to anywhere besides Denver, Colorado
 
 <!---
+API_KEY="8wcxsJNd2GadQjgtA9TvSDhNx"
+API_Secret="0itu3yZjRozAHxd7FbrVWj01wLhk5tCecF5XoGkoubeOe1fmfO"
 d4rkf0x/d4rkf0x is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
