@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Almost Anything That Helps the Human Race find Freedom.
 - 📫 How to reach me. d4rkfox6@x.com
 - 😄 Pronouns: They/them, 29Å
-- ⚡ Fun fact: I am currently homeless, and looking for a job.
+- ⚡ Fun fact: I am currently employed.
 - 👁️ Looking forward to moving on with my life.
 
 <!---
