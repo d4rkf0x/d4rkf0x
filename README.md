@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @d4rkf0x
 - 👀 I’m interested in almost everything. Thanks for that.
-- 🌱 I’m currently learning Paranormal Investigations, @ University Of Colorado, Boulder
+- 🌱 I’m currently learning Paranormal Investigations, @ The End of Trail Of Tears, Colorado
 - 💞️ I’m looking to collaborate on Almost Anything That Helps the Human Race find Freedom.
 - 📫 How to reach me. d4rkfox6@x.com
 - 😄 Pronouns: They/them, 29Å
