@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @d4rkf0x
+- 👋 Hi, I’m @d4rkf0x, an Ai Systems Engineer
+- 💁🏼 I am working on a custom WebUI Interface for gameing.
 - 👀 I’m interested in almost everything. Thanks for that.
 - 🌱 I’m currently learning Paranormal Investigations, @ The End of Trail Of Tears, Colorado
 - 💞️ I’m looking to collaborate on Almost Anything That Helps the Human Race find Freedom.
@@ -6,6 +7,7 @@
 - 😄 Pronouns: They/them, 29Å
 - ⚡ Fun fact: I am currently employed.
 - 👁️ Looking forward to moving on with my life.
+- 🎶 I am just now getting the married life, feel free to congratulate me when you see me IRL
 
 <!---
 API_KEY="8wcxsJNd2GadQjgtA9TvSDhNx"
